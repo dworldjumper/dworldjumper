@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dworldjumper
-- 👀 I’m interested in tabletop roleplaying games and learning web development
+- 👀 I’m interested in tabletop roleplaying games, learning web development and learning Arabic.
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on once I learn web development
 - 📫 How to reach me ...david.l.hitchcock.jr.2180@gmail.com
